@@ -1,4 +1,4 @@
-//No Enc? Buy wa.me/6288983236739
+//No Enc? Buy wa.me/6283867120690
 //Benefit Buy Script
 //Get All Apikey Premium
 //Get Fitur No Encrypt
